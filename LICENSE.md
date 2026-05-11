@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://CircleMiteRespect.github.io/nordpass-for-macos-zh53/) |
  |---------------------|----------------------:|
 
 
